@@ -1,1 +1,2 @@
-# dark-star-king
+# Dark Star King
+« Su Xiaobai était au bord de la mort, mais il a été réincarné dans un nouveau monde. L’âme de l’être le plus puissant, le « Roi des étoiles » Long Ming habite désormais son corps. Par conséquent, il a acquis une capacité extrêmement puissante :  " Obscurité éternelle ". Suivez ainsi les histoires de Su Xiaobai, à la recherche du meurtrier qui a tué son nouveau maître et à la conquête du trône du Palais étoilé ! »
